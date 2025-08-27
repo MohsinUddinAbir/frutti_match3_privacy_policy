@@ -1,1 +1,1 @@
-# frutti_match3_privacy_policy
+# Frutti Match3 Privacy Policy
